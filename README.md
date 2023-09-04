@@ -2,4 +2,4 @@
 
 meu nome é Yasmin
 
--esta semana irei viajar
+-esta semana vou viajar
