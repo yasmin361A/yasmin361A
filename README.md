@@ -1,5 +1,5 @@
 ### BOA VINDAS AO MEU PERFILL 
 
-MEU NOME É YASMIN 
+meu nome é Yasmin
 
--eta semana irei viajar
+-esta semana irei viajar
